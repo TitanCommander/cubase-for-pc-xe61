@@ -1,4 +1,4 @@
-# 
+# Cubase for PC | Cubase for Windows custom Effect: DAW-functionality & time-stretching is the best Cubase for PC | Cubase for Windows effect, featuring DAW-functionality and
 
 
 
